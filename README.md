@@ -1,2 +1,0 @@
-# zafir
-ZAFIR KHAN WEB PAGE
